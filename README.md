@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Exilium31
+- 👀 I’m interested in gaming, video editing and hanging out with friends/meeting new people.
+- 🌱 I’m currently learning Software engineer
+- 📫 How to reach me: Discord: Exilium#5806
